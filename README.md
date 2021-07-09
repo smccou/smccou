@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @smccou
+- 👀 I’m interested in environmental accounting, footprints, Canadian agriculture
+- 🌱 I’m currently learning about Canadian nitrogen footprints
+- 📫 Reach me at sibeal.mccourt@mail.mcgill.ca, @SibealMccourt
